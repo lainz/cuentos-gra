@@ -1,5 +1,5 @@
 ---
-title: "Sueno O Realidad"
+title: "Sueño O Realidad"
 date: 2021-01-10T11:19:45-03:00
 tags: []
 featured_image: ""
