@@ -1,0 +1,9 @@
+---
+title: "Sorprendentemente Azul"
+date: 2021-01-10T10:57:16-03:00
+tags: []
+featured_image: ""
+description: ""
+---
+Azul es tu color preferido, me lo has dicho tantas veces, no lo entendía hasta que, en uno de aquellos días tranquilos de mi vida cotidiana, me senté a descansar en el patio que da al jardín. Comencé a observar el cielo cerúleo, este me recordó el color de nuestra bandera patria. Bellas flores azuladas engalanando la orilla del cerco. Y así, sentado en el banco añil que pintaste aquella tardecita de otoño, con la excusa de renovar el color de los muebles, dije sorprendido ¡Claro! Aquí todo es azulino ¿De que otro color iba a ser si es el color que te encanta? Adormilado por la tibieza de la luz del sol y con los ojos entrecerrados, miro atónito unas alitas de color índigo, que con suave aleteo se dirigen hacia la fuente de agua, pintada también de color azur. Abro mis ojos con asombro y lo que veo me impacta ¡Es una mariposa, es una niña mariposa! No, no puede ser. Me refriego los ojos para sacarme la duda y ver mejor ¡Es una niña! Rostro angelado, ojitos almendrados, boca pequeña, largos cabellos castaños y veo unos brillitos a cada lado de su rostro, son aritos color zarco. Me mira, sonríe tímidamente, bebe el agua fresca y se acerca. No se que hacer. Con voz suave me pregunta ¿Has visto a la mujer? Me dice que siempre viene a conversar contigo y tienen largas horas de charla. Aún estoy sorprendido ¿Qué debo hacer…?
+Me doy vuelta en este incomodo catre del barco, lugar de descanso que me tocó esta vez para salir a navegar. Un cuadro delante mío pintado por vos me hace sonreír. ¿Era un sueño nada más…? En ese instante en el lienzo unas alitas de color garzo comienzan a aletear.
