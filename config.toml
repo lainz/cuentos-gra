@@ -1,4 +1,4 @@
-baseURL = "https://lainz.github.io/cuentos/"
+baseURL = "https://lainz.github.io/cuentos-gra/"
 languageCode = "es-ar"
 title = "Cuentos de GRA"
 theme = "ananke"
